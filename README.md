@@ -17,3 +17,5 @@ on the wiki page for it, it says https://en.wikipedia.org/wiki/Road_to_Rouen the
 * ["Fin"](https://www.youtube.com/watch?v=PpIGnnIh5e0)
 
 first period ap european history, on my ipod, senior yr in hs, before class started, this is what i was listening to 😂
+
+second fav album of all time: [food & liquor](https://en.wikipedia.org/wiki/Lupe_Fiasco%27s_Food_%26_Liquor) by lupe fiasco, tied with [born to die](https://en.wikipedia.org/wiki/Born_to_Die) by lana del rey
