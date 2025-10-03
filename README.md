@@ -15,3 +15,5 @@ on the wiki page for it, it says https://en.wikipedia.org/wiki/Road_to_Rouen the
 * ["Kick in the Teeth"](https://www.youtube.com/watch?v=PPRj4ylYwKM)
 * ["Low C"](https://www.youtube.com/watch?v=eu8ZZylFHbQ)
 * ["Fin"](https://www.youtube.com/watch?v=PpIGnnIh5e0)
+
+first period ap european history, on my ipod, senior yr in hs, before class started, this is what i was listening to 😂
